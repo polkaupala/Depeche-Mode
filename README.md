@@ -1,2 +1,2 @@
-# Depeche-Mode
+# De-Mode
 Depeche Mode
